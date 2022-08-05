@@ -1,1 +1,4 @@
 # ArcaeaFanmade
+有需要的自取，以后新谱也会更新在这里
+部分songlist里的preview都是瞎填的，自己改一下吧
+有问题加qq2058866747反馈
